@@ -41,7 +41,5 @@ All copyright are reserved by those authors.
 Hope you will have a great time with the game!
 
 								Tengqi,Zhan
-								20566757
-								University of Waterloo
 								May 1st - June 1st.
 
